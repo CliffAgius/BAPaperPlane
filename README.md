@@ -1,5 +1,5 @@
-# BAPaperPlane
-BA Paper Plane for kids large and small... Looks like Concorde when completed.
+# BA Paper Concorde
+BA Paper Plane for kids large and small... Looks like Concorde when completed, just not as fast sadly.
 
 Has two pages make sure you don't print double sided as the first page is the instuctions and you kinda need those...  Best printed on A4 Paper and you will need to cut out parts so if little people are helping then find a responsible adult to help you all...
 
